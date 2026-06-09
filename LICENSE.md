@@ -1,4 +1,4 @@
-#  
+#  ink game Scripts smart is the best ink game Script, featuring fly and invisibility. Safe and powerful for all your needs.
 
 
 
